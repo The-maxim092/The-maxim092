@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @The-maxim092
+- 👋 Hi, I’m Enger Gonzalez
 - 👀 I’m interested in programming in general
 - 🌱 I’m currently learning sometimes
 - 💞️ I’m looking to collaborate on my own company
 - 📫 How to reach me. Very easy, I just have to like you
-- 😄 Pronouns: Maxim
 - ⚡ Fun fact: Putting sugar on a wound reduces pain and speeds up the healing process.
